@@ -42,5 +42,5 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ## **𝓦𝓔 𝓼𝓱𝓸𝓾𝓵𝓭 𝓪𝓵𝓵 𝓵𝓸𝓿𝓮 𝓔𝓵𝓵𝓲𝓸𝓽 😋**
 
-ᴀʀᴛ ʙʏ ʏᴀʙʜɪʙɪ ᴏɴ x/ᴛᴡɪᴛᴛᴇʀ
-![Art by Yabhibi on X/Twitter](https://github.com/user-attachments/assets/91394d98-23c7-462a-a84b-c3214cee987c)
+ᴀʀᴛ ʙʏ sᴏɴʏᴀғɪɪsʜ ᴏɴ x/ᴛᴡɪᴛᴛᴇʀ
+![Art by sonyafiish](https://github.com/user-attachments/assets/1e64b5cf-d7c3-4ea5-9e96-9ce38ba3072e)

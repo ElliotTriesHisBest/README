@@ -18,7 +18,7 @@ I'm in college so I'm not online as often on weekdays 💔
 
 # ─── ⋆⋅☆⋅⋆ ──
 
-**BOUNDARIES!!!**
+### BOUNDARIES!!!
 
 Basic DNI criteria applies, you already knowww, don't be problematic, common sense (◉‿◉)
 
@@ -40,4 +40,7 @@ ELLIOT AND 1X4 AND INFECTED MY BELOVEDDDDSSSS 😍😍😍😍😍😍🤑🤑�
 IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING EACH OTHER LELELELELEL 😋😋😋😋
 *The only ones I don't ship in Forsaken are the kiddos! (c00lkidd, bluudud, pr3typriincess)*
 
-# **𝓦𝓔 𝓼𝓱𝓸𝓾𝓵𝓭 𝓪𝓵𝓵 𝓵𝓸𝓿𝓮 𝓔𝓵𝓵𝓲𝓸𝓽 😋**
+## **𝓦𝓔 𝓼𝓱𝓸𝓾𝓵𝓭 𝓪𝓵𝓵 𝓵𝓸𝓿𝓮 𝓔𝓵𝓵𝓲𝓸𝓽 😋**
+
+ᴀʀᴛ ʙʏ ʏᴀʙʜɪʙɪ ᴏɴ x/ᴛᴡɪᴛᴛᴇʀ
+![Art by Yabhibi on X/Twitter](https://github.com/user-attachments/assets/91394d98-23c7-462a-a84b-c3214cee987c)
